@@ -13,7 +13,7 @@ https://youtu.be/wKm8gvMgmYo
 ****If you use the Source Code, please make sure to credit and backlink to [Agus Triono](https://www.kanggustri.com/)***
 
 ## 👇 Click For Support Me :
-<a href="https://saweria.co/kanggustri"> 
+<a href="https://saweria.co/kanggustri"> AgusTriono </a>
 
 ## 📄 License
 
